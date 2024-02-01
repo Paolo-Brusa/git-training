@@ -15,7 +15,7 @@ Mint Cholocate Chip ice cream
 ## Sophie
 
 ## Beijia
-
+Ich mag Sushi:)
 ## Kiki
 
 ## Viktor
